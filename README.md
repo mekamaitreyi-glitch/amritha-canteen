@@ -1,1 +1,1 @@
-# amritha-canteen
+# amrita-canteen
